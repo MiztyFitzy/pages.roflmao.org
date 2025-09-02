@@ -10,3 +10,8 @@ everyone loves to roflmao
 
 why pages.roflmao.org?
 why not
+
+## Links
+[gihkal](gihkal.roflmao.org)
+
+
