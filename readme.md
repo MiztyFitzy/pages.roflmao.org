@@ -12,6 +12,6 @@ why pages.roflmao.org?
 why not
 
 ## Links
-[gihkal](gihkal.roflmao.org)
+[gihkal](https://gihkal.roflmao.org)
 
 
